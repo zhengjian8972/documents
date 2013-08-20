@@ -1,1 +1,0 @@
-This is my resume for the job
